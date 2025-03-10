@@ -1,1 +1,1 @@
-This game is a fever dream.
+This game is an acid trip.
